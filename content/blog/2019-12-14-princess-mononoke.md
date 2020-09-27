@@ -1,6 +1,6 @@
 ---
 title: HOW TO DO KETO THE RIGHT WAY
-date: 2020-08-31 18:00:00 +0000
+date: 2020-08-31T18:00:00.000+00:00
 image: "/images/do-keto.png"
 tags:
 - Keto diet
@@ -8,7 +8,6 @@ tags:
 draft: false
 
 ---
-  
 ![](https://1.bp.blogspot.com/-km96NLw0pB8/X241RkqJqCI/AAAAAAAAAT8/ZrWj-bJYGEI514i8YNMl1NBsfeXoZnXugCLcBGAsYHQ/s16000/nuvane%2Bhealth%2B%2528149%2529.jpg)
 
 Hey guys! thanks a lot to visit and come this long.
@@ -23,14 +22,13 @@ which will bring you a result.
 
 Whatever your intention is, I assure you, you will enjoy it here.
 
-  
 I won't take much of your time. **Give me 2 minutes**.
 
 I will give you something that will make this 2 min worthy & you might
 
 also feel this was the **best 2 minutes of your life**. You will be proud of your decision.
 
-[![](https://1.bp.blogspot.com/-XhZGizT4xeA/X243258TMpI/AAAAAAAAAUQ/rrIAtIYYQWgZocERIZnmYY1hMHU2IkIAgCLcBGAsYHQ/s16000/Quick-Start-Guide-to-Keto-.png)](https://www.blogger.com/u/1/blog/post/edit/3905988030586880972/950449715822958790#)
+[![](https://1.bp.blogspot.com/-XhZGizT4xeA/X243258TMpI/AAAAAAAAAUQ/rrIAtIYYQWgZocERIZnmYY1hMHU2IkIAgCLcBGAsYHQ/s16000/Quick-Start-Guide-to-Keto-.png)](https://bit.ly/3mKRzIG)
 
 Quick Start Guide to Keto🥑 was created to help people follow the
 
@@ -42,7 +40,6 @@ ketogenic diet in the healthiest way possible.
 
 ✅Do you want to look good and live healthy?
 
-  
 ✔️Then this is for you...
 
 Many people wants to lose weight but don't know where to start❓
@@ -69,14 +66,12 @@ Therapy Practitioner and Board Certified Holistic Health Coach), who
 
 will guide you step by step to get your result?
 
-  
 👉 I will give you consistent guidance and I assure you that you will get
 
 to your desired goal NOW. Not for me but for your effort you just need
 
 some motivation and guidance to stick to it.
 
-  
 Seems Easy right? it is 🤓
 
 ![](https://1.bp.blogspot.com/-_s2hA4bdRao/X241mn2g4MI/AAAAAAAAAUE/BFd7fcJYsZ4iTgqNaxDkS36puSBCSLTvQCLcBGAsYHQ/s16000/59fb2b07b73a7-before-after-weight-loss-success-stories-coverimage.jpg)
